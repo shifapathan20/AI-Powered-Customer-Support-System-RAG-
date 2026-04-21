@@ -149,5 +149,7 @@ It focuses on:
 
 ## Contact
 
-Email: your-email@example.com  
-LinkedIn: your-linkedin
+Email: shifapathan2026@gmail.com
+LinkedIn: www.linkedin.com/in/shifapathan20
+
+
